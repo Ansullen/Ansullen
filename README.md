@@ -2,7 +2,7 @@
 - 👀 I’m interested in cock
 - 🌱 I’m currently learning cockology
 - 💞️ I’m looking to collaborate on cockmaxxing
-- 📫 How to reach me climax
+- 📫 How to reach me: cock@penis.com
 - 😄 Pronouns: co/ck
 - ⚡ Fun fact: cock
 
